@@ -9,4 +9,4 @@ Spider-Man's secret identity is Peter Parker, a teenage high school student
 
 Ellice Tuason is a film and TV producer who worked on I Love Lizzy and also has the TV shows Wansapanataym and On the Wings of Love as well as the films Doll House, To Russia with Love and Unravel among her past work.
 
-The exact details of Ellice’s story remain private, but it’s clear that the film takes inspiration from her experiences as the character of Lizzy’s full name is Elizabeth Tuazon – which is undeniably similar to Ellice Tuason.
+The exact details of Ellice’s story remain private, but it’s clear that the film takes inspiration from her experiences as the character of Lizzy’s full name is Elizabeth Tuazon – which is undeniably similar to Ellice Tuason
